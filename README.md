@@ -24,7 +24,7 @@ ships♡
 i don't really ship much so there's only the ones i really love,
 tho idm other ships as long as their not problematic or weird.
 - Gyro x Johnny
-- Anasui x Jolyne[+ their new vers.]
+- Giorno x Trish
 - Ermes x Jolyne
 - Hot Pants x Diego
 - Phainon x Mydei
