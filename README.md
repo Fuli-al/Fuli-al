@@ -1,7 +1,7 @@
 <img width="4929" height="3365" alt="IMG_6103" src="https://github.com/user-attachments/assets/1dcb4c89-190b-49d7-9489-71063a85bbb6" />
 
 -- -- -- --
-fav fandoms♥︎
+fav Animes♥︎
 
  anime:  JJBA | JJK | HNK | Studio Ghibli
 
