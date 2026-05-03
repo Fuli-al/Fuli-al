@@ -23,7 +23,7 @@ ships♡
 
 i don't really ship much so there's only the ones i really love,
 tho idm other ships if their unproblematic or weird.
-- Gyro x Jhonny
+- Gyro x Johnny
 - Anasui x Jolyne[+ their new vers.]
 - Ermes x Jolyne
 - Hot Pants x Diego
