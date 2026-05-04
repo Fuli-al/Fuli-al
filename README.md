@@ -22,7 +22,7 @@ HNK:  Padparadscha | Rutile | phosphophyllite
 ships♡
 
 i don't really ship much so there's only the ones i really love,
-tho idm other ships as long as their not problematic or weird.
+tho idm other ships as long as they're not problematic or weird.
 - Gyro x Johnny
 - Giorno x Trish
 - Hot Pants x Diego
