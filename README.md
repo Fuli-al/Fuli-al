@@ -29,3 +29,4 @@ tho idm other ships as long as they're not problematic or weird.
 - Phainon x Mydei
 - Jing Yuan x Luocha
 - Kiana x Mei
+- Dottore x Pantalone
