@@ -7,7 +7,7 @@ favorites♥︎
 
 games: Hi3D | HSR | GI | ARkEndfield | ENA:dream BBQ |
 -- -- -- --
-fav characters♥︎
+characters♥︎
 
 JJBA: All JoJo's up to part 7☆ |  Gyro Zeppeli | Lucy Steel | Rohan Kishibe | Guido Mista | Trish Una | Diego Brando[SM] | Dio Brando | Hot Pants | Caesar Zeppeli | Kars |
 
