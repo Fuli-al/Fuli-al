@@ -11,7 +11,7 @@ fav characters♥︎
 
 JJBA: All JoJo's up to part 7☆ |  Gyro Zeppeli | Lucy Steel | Rohan Kishibe | Guido Mista | Trish Una | Diego Brando[SM] | Dio Brando | Hot Pants | Caesar Zeppeli | Kars |
 
-JJK: Yuta Okkotsu | Megumi Fushiguro | Itadori Yuji | Gojo Satoru | Shoko Ieri | Hanna[Angel] | Riko Amanai | Nobara Kugisaki | Kirara Hoshi |
+JJK: Yuta Okkotsu | Megumi Fushiguro | Itadori Yuji | Gojo Satoru | Shoko Ieiri | Hanna[Angel] | Riko Amanai | Nobara Kugisaki | Kirara Hoshi |
 
 Hi3D: Durandal | Fu Hua | Kallen Kaslana | Otto Apocalypse | Theresa Appcalypse | Senti | Su | Vill V | Kiana Kaslana |
 
