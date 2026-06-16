@@ -17,7 +17,7 @@ Hi3D: Durandal | Fu Hua | Kallen Kaslana | Otto Apocalypse | Theresa Appcalypse 
 
 HSR: Ashveil | Jing Yuan | Luocha | March 7th/Evernight | Phainon | Mydei | Aglaea | Jiaoqiu | Anaxagoras | The Herta | Boothill
 
-GI: Dottore | Furina | Neuvillette | Navia | Wtiothesley | 
+GI: Dottore | Furina | Neuvillette | Navia | Baizhu | 
 
 HNK:  Padparadscha | Rutile | phosphophyllite
 
