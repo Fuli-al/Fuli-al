@@ -17,17 +17,15 @@ Hi3D: Durandal | Fu Hua | Kallen Kaslana | Otto Apocalypse | Theresa Appcalypse 
 
 HSR: Ashveil | Jing Yuan | Luocha | March 7th/Evernight | Phainon | Mydei | Aglaea | Jiaoqiu | Anaxagoras | The Herta | Boothill
 
-GI: Dottore | Furina | Neuvillette | Navia | Baizhu | 
+GI: Dottore | Furina | Neuvillette | Navia | Baizhu | Pantalone
 
 HNK:  Padparadscha | Rutile | phosphophyllite
 
-Jouno,Tecchou[BSD],Fujimoto[Ponyo],Lighter,Burnice,Hugo‎[ZZZ‎. quitted the game],
 -- -- -- --
 ships♡
 
 i don't really ship much so there's only the ones i really love,
 tho idm other ships as long as they're not problematic or weird.
-- Gyro x Johnny
 - Hot Pants x Diego
 - Phainon x Mydei
 - Jing Yuan x Luocha
