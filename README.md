@@ -28,6 +28,6 @@ i don't really ship much so there's only the ones i really love,
 tho idm other ships as long as they're not problematic or weird.
 - Hot Pants x Diego
 - Phainon x Mydei
-- Jing Yuan x Luocha
+- Kalpas x P.E Sakura
 - Kiana x Mei
 - Dottore x Pantalone [ only shipping Lone with Zandik and 35,45,65 segments + Webby]
