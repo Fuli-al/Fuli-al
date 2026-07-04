@@ -30,4 +30,4 @@ tho idm other ships as long as they're not problematic or weird.
 - Phainon x Mydei
 - Jing Yuan x Luocha
 - Kiana x Mei
-- Dottore x Pantalone
+- Dottore x Pantalone [ only shipping Lone with Zandik and 35,45,65 segments + Webby]
