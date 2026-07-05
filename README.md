@@ -31,5 +31,5 @@ tho idm other ships as long as they're not problematic or weird.
 - Kalpas x P.E Sakura
 - Kiana x Mei
 - Dottore x Pantalone
-[don't get near me if you ship Lone/anyone with Dottore's 8,18 segments]
+[35,45,65 segments +Zandik/Webby only]
 -- -- -- --
