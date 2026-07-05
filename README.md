@@ -30,4 +30,6 @@ tho idm other ships as long as they're not problematic or weird.
 - Phainon x Mydei
 - Kalpas x P.E Sakura
 - Kiana x Mei
-- Dottore x Pantalone [ only shipping Lone with Zandik and 35,45,65 segments + Webby] -don't get near me if you ship Lone/anyone with Dottore's 8,18 segments-
+- Dottore x Pantalone
+[don't get near me if you ship Lone/anyone with Dottore's 8,18 segments]
+-- -- -- --
