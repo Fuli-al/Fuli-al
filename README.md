@@ -15,7 +15,7 @@ JJK: Yuta Okkotsu | Megumi Fushiguro | Itadori Yuji | Gojo Satoru | Shoko Ieiri 
 
 Hi3D: Durandal | Fu Hua | Kallen Kaslana | Otto Apocalypse | Theresa Appcalypse | Senti | Su | Vill V | Kiana Kaslana | Kalpas | Sakura[PE] |
 
-HSR: Ashveil | Jing Yuan | Luocha | March 7th/Evernight | Phainon | Mydei | Aglaea | Jiaoqiu | Anaxagoras | The Herta | Boothill
+HSR: Ashveil | Jing Yuan | Luocha | March 7th/Evernight | Phainon | Mydei | Aglaea | Jiaoqiu | Anaxagoras | The Herta | Boothill | Reca
 
 GI: Dottore | Furina | Neuvillette | Navia | Baizhu | Pantalone
 
