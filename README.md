@@ -3,21 +3,21 @@
 -- -- -- --
 favorites♥︎
 
- anime:  JJBA | JJK | HNK | Studio Ghibli
+anime:  JJBA | JJK | HNK | Studio Ghibli | WHA
 
-games: Hi3D | HSR | GI | ARkEndfield | ENA:dream BBQ |
+games: Hi3D | HSR | GI | ARKEndfield | ENA:dream BBQ |
 -- -- -- --
 characters♥︎
 
-JJBA: All JoJo's up to part 7☆ |  Gyro Zeppeli | Lucy Steel | Rohan Kishibe | Trish Una | Diego Brando[SM] | Dio Brando | Hot Pants | Caesar Zeppeli |
+JJBA: All JoJo's up to part 7☆ |  Gyro Zeppeli | Lucy Steel | Rohan Kishibe | Trish Una | Diego Brando[SM] | Dio Brando | Caesar Zeppeli |
 
-JJK: Yuta Okkotsu | Megumi Fushiguro | Itadori Yuji | Gojo Satoru | Shoko Ieiri | Hanna[Angel] | Riko Amanai |
+JJK: Yuta Okkotsu | Megumi Fushiguro | Itadori Yuji | Gojo Satoru | Shoko Ieiri | Riko Amanai |
 
-Hi3D: Durandal | Fu Hua | Kallen Kaslana | Otto Apocalypse | Theresa Appcalypse | Senti | Su | Vill V | Kiana Kaslana | Kalpas | Sakura[PE] |
+Hi3D: Durandal | Fu Hua | Kallen Kaslana | Otto Apocalypse | Theresa Appcalypse | Senti | Su | Kiana Kaslana | Kalpas | Sakura[PE] |
 
-HSR: Ashveil | Jing Yuan | Luocha | March 7th/Evernight | Phainon | Mydei | Aglaea | Jiaoqiu | Anaxagoras | The Herta | Boothill | Reca | Lygus
+HSR: Jing Yuan | Luocha | March 7th/Evernight | Phainon | Mydei | Aglaea | Jiaoqiu | Anaxagoras | The Herta | Reca | Lygus | Castorice
 
-GI: Dottore | Furina | Neuvillette | Navia | Baizhu | Pantalone
+GI: Dottore | Furina | Neuvillette | Navia | Baizhu | Pantalone |
 
 HNK:  Padparadscha | Rutile | phosphophyllite
 
@@ -31,5 +31,5 @@ tho idm other ships as long as they're not problematic or weird.
 - Kalpas x P.E Sakura
 - Kiana x Mei
 - Dottore x Pantalone
-[35,45,65 segments +Zandik/Webby only, and maybe 25]
+[25,35,45,65 segments +Zandik/Webby only]
 -- -- -- --
