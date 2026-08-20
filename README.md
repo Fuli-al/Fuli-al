@@ -32,5 +32,5 @@ tho idm other ships as long as they're not problematic or weird.
 - Kiana x Mei
 - Dottore x Pantalone
 
-[25,35,45,65 segments +Zandik/Webby only]
+[if yall ship his 8-18 segments with anyone stay away from me,gross]
 -- -- -- --
