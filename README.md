@@ -32,5 +32,5 @@ tho idm other ships as long as they're not problematic or weird.
 - Kiana x Mei
 - Dottore x Pantalone
 
-[if yall ship his 8-18 segments with anyone stay away from me,gross]
+[if yall ship Dotts 8-18 segments with anyone stay away from me,gross]
 -- -- -- --
