@@ -30,7 +30,8 @@ tho idm other ships as long as they're not problematic or weird.
 - Phainon x Mydei
 - Kalpas x P.E Sakura
 - Kiana x Mei
-- Dottore x Pantalone
+- Dottore x Pantalone/Lygus
+- zandik x Sohreh
 
-[if yall ship Dotts 8-18 segments with anyone stay away from me,gross]
+[if yall ship Dott’s 8-18 segments with anyone stay away from me,gross]
 -- -- -- --
