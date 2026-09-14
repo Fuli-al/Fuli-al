@@ -5,7 +5,7 @@ favorites♥︎
 
 anime:  JJBA | JJK | HNK | Studio Ghibli | WHA
 
-games: Hi3D | HSR | GI | ARKEndfield | ENA:dream BBQ |
+games: Hi3D | HSR | GI | ARKEndfield | ENA:dream BBQ | R1999
 -- -- -- --
 characters♥︎
 
@@ -15,7 +15,7 @@ JJK: Shoko Ieiri | Yuta Okkotsu | Megumi Fushiguro | Itadori Yuji | Gojo Satoru 
 
 Hi3D: Durandal | Fu Hua | Kallen Kaslana | Otto Apocalypse | Senti | Su | Kiana Kaslana | Kalpas | Sakura[PE] |
 
-HSR: Jing Yuan | Luocha | March 7th/Evernight | Phainon | Mydei | Aglaea | Jiaoqiu | Anaxagoras | The Herta | Reca | Lygus/Zandar | Castorice
+HSR: Jing Yuan | Luocha | March 7th/Evernight | Phainon | Mydei | Aglaea | Jiaoqiu | Anaxagoras | The Herta | Mr. Reca | Lygus/Zandar | Castorice
 
 GI: Dottore | Furina | Neuvillette | Navia | Baizhu | Pantalone | Tsaritsa | Vodyanitsa | Valeriy 
 
