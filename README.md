@@ -33,5 +33,5 @@ tho idm other ships as long as they're not problematic or weird.
 - Dottore x Pantalone/Lygus
 - zandik x Sohreh
 
-[if yall ship Dott’s 8-(18-except Sohreh for 18) segments with anyone stay away from me,gross]
+[if yall ship Dott’s 8-18 (except Sohreh for 18) segments with anyone stay away from me,gross]
 -- -- -- --
