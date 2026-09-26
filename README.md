@@ -9,7 +9,7 @@ games: Hi3D | HSR | GI | ARKEndfield | ENA:dream BBQ | R1999
 -- -- -- --
 characters♥︎
 
-JJBA: All JoJo's up to part 7☆ |  Gyro Zeppeli | Lucy Steel | Rohan Kishibe | Trish Una | Diego Brando[SM] | Dio Brando | Caesar Zeppeli |
+JJBA: All JoJo's up to part 7☆ |  Gyro Zeppeli | Lucy Steel | Rohan Kishibe | Trish Una | Diego Brando[SM] | Dio Brando | Caesar Zeppeli | Hot Pants
 
 JJK: Shoko Ieiri | Yuta Okkotsu | Megumi Fushiguro | Itadori Yuji | Gojo Satoru  | Riko Amanai |
 
