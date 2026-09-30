@@ -33,5 +33,5 @@ tho idm other ships as long as they're not problematic or weird.
 - Dottore x Pantalone/Lygus
 - zandik x Sohreh
 
-[if yall ship Dott’s 8 (and with 18(zandik) the only ship im ok with is Sohreh) segments with anyone stay away from me,gross]
+[if you ship Dott’s 8-18 [the only ship im ok with Zandik(18) is Sohreh] segments with lone/fatui etc.. Dni]
 -- -- -- --
