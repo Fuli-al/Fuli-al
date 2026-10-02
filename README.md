@@ -3,7 +3,7 @@
 -- -- -- --
 favorites♥︎
 
-anime:  JJBA | JJK | HNK | Studio Ghibli | WHA
+anime/other:  JJBA | JJK | HNK | Studio Ghibli | WHA
 
 games: Hi3D | HSR | GI | ARKEndfield | ENA:dream BBQ | R1999
 -- -- -- --
