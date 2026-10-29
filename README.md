@@ -31,7 +31,6 @@ tho idm other ships as long as they're not problematic or weird.
 - Kalpas x P.E Sakura
 - Kiana x Mei
 - Dottore x Pantalone/Lygus
-- zandik x Sohreh
 
-[if you ship Dott’s 8-18 [the only ship im ok with Zandik(18) is Sohreh] segments with lone/fatui etc.. Dni]
+[if you ship Dott’s 8-18 segments with lone/fatui etc.. Dni]
 -- -- -- --
