@@ -32,5 +32,5 @@ tho idm other ships as long as they're not problematic or weird.
 - Kiana x Mei
 - Dottore x Pantalone/Lygus
 
-[if you ship Dott’s 8-18 segments with lone/fatui etc.. Dni]
+[if you ship Dott’s 8 (18 on thin ice) segments with lone/fatui etc.. Dni]
 -- -- -- --
